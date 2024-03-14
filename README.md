@@ -8,4 +8,4 @@
 
 👨‍💼 - Agile Team Manager (Sustainability Digital)  
 📧 - lars.netzel.2@volvocars.com  
-❤️ - 🎹🍷🤘🎬⛷️🦇
+❤️ - 🎹☮︎🍷🤘🎬⛷️🕹️
