@@ -7,6 +7,6 @@
      \ `\_____\\/____/\/_/\/_/\/____/ \/__/ \/____/\/____/\/____/ \/_/
       `\/_____/  
 
-👨‍💼 - Agile Team Manager (Sustainability Digital)  
+👨‍💼 - Engineering Manager (Engineering Digital)  
 📧 - lars.netzel.2@volvocars.com  
 ❤️ - 🎹☮︎🍷🤘🎬⛷️🕹️
