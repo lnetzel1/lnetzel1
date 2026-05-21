@@ -7,6 +7,6 @@
      \ `\_____\\/____/\/_/\/_/\/____/ \/__/ \/____/\/____/\/____/ \/_/
       `\/_____/  
 
-👨‍💼 - Engineering Manager (Engineering Digital)  
+👨‍💼 - Business Analyst (Engineering Digital/Sustainability Digital)  
 📧 - lars.netzel.2@volvocars.com  
 ❤️ - 🎹☮︎🍷🤘🎬⛷️🕹️
